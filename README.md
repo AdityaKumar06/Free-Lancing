@@ -7,7 +7,7 @@ Subject: Leave Request from 19th May to 1st June 2025
 
 Dear [HR's Name],
 
-I hope you are doing well.
+I hope this message finds you well.
 
 I am writing to request leave from 19th May to 1st June 2025, as I will be attending my sister’s ring ceremony and handling some important personal responsibilities at home. These events require my full attention and presence with my family during this period.
 
